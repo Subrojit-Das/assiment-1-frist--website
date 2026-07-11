@@ -1,0 +1,1 @@
+give me HTML and CSS code for my AI defendant sections. Jast only one section
